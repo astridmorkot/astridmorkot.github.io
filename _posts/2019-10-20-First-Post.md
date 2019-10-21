@@ -12,35 +12,53 @@ Anyway, for my creative writing class we were asked to respond to Han Kang's nov
 
 
 My Mother Turned Into A Tree, 
+
 In December, 
+
 Leaves Sprang From Her Hands, 
+
 And With Every Inhale Greed Whisked Her Away,
+
 Each Breath Sweeter Than The Last,
+
 She Grew Into The Earth And Away From Me, 
+
 And Her Eyes Wept Green Sap, 
+
 Of Joy And Freedom And Everything Else. 
 
 I Blame The Seasons,
+
 For Transfixing Her, 
+
 With Its Halcyon Rays And Promises 
+
 Of Changed Life,
+
 Implanting Her Like The Seed From Whence She Grew. 
 
 At Night I Still Cry Out For Her, 
+
 To Be Tangled In Her Flesh, 
+
 Under The Earth With Her,
+
 Fresh Mud On My Tongue,
+
 And Dirt In My Lungs,
 
 But,
+
 She Returns To Her Soil, 
+
 Eden’s Daughter, 
+
 And I To Mine. 
 
-
+---
 *Self Ablaze*
 
----
+
 Clara stepped into a doorframe, immediately slashing the warm Viennese sunlight in two. Remaining fragments of light angled around her, piercing the gaps in her dark fringe. Her slender frame cast a sinister shadow upwards, curving around the steep museum wall and back down on her. Clara’s feet occupied little space on the alternating grey / white marble tiles. She stood, planted, glancing up at her new surroundings. Large windows ballooned overhead, which the fading day seeped through in blocks of pale light. Heaven! In this very city where Freud and Trotsky clinked coffee mugs under Empress Elisabeth’s oppressive gaze. These very halls Franz Ferdinand had skulked along. Reproachful finger poised in moustache. Clara’s lips twitched, soaking in the history. 
 
 Her cold fingers were intertwined in the grip of her small daughter. Anna, her strange child, more nymph than girl, with her long silky curls that tumbled to her waist and her soft pearly skin. Her features were extremely forgiving, a tiny waif in her mother’s large shadow. Clara on the other hand shifted rooms with her appearance. Her nose was thin and sharp, high arching cheekbones bloomed from her face. Her eyes were perfect almonds, indigo and violent in pigment. This face was framed by strands of rich ebony hair. Everything had been deliberately placed, purposefully crafted-  like she had danced right out of one of Gustav Klimt’s paintings. Perhaps people thought she was part of the exhibition! The only relics small Anna had inherited from Clara was her shared love for art and silence. 
