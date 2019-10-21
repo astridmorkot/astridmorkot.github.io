@@ -7,7 +7,7 @@ title: Women In Trees
 I found this picture of a Danish girl on a photography website one of my Art History tutors told me about. It reminded me a lot of Han Kang's *The Vegetarian*, which I recently read for my creative writing class at univeristy. I'll probably have to dedicate another post just to *The Vegetarian*, as it was probably the most beautiful and rich novella I've ever encountererd. I was so transfixed with it I'm thinking about writing my dissertation about a metamorphoses of the female form, particuarly that which transcends the human into nature. I want to look at the instances in which women have morphed into trees in literature- of course Ovid's Daphne is going to be a main subject- but Kang's Yeong-Hye could put an interesting spin on a seemingly arbitrary narrative of female transition. 
 Anyway, for my creative writing class we were asked to respond to Han Kang's novella in a creative form. I chose a few. I thought perhaps I could experiment with them here. 
 
-
+---
 *My Mother The Tree*
 
 
