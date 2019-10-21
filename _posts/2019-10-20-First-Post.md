@@ -2,7 +2,7 @@
 layout: post
 title: Women In Trees 
 ---
-![group photo](/images/C027484-R1-03-5.jpg)
+![group photo](/images/mkj.jpeg)
 
 I recently read Han Kang's The Vegetarian
 
