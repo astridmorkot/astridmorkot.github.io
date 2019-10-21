@@ -66,7 +66,9 @@ Her cold fingers were intertwined in the grip of her small daughter. Anna, her s
 Adjacent to this scene, visitors drifted in and out of the main room and descended down a beautifully carved marble staircase that trapped golden rays and bounced them around the space in dazzling cubes of light, shining so zealously they appeared wet. No famous Belvedere Museum queue reproached them. Their timing was impeccable. After a few dull moments of gallery practicalities, (fumbling for cash, smiling at guards, tickets, don’t forget to smile!), the pair were at the mercy of the main event: Gustav Klimt in all his glory, crystallised and set in gold for all of eternity. The nakedness of Klimt’s gorgeous women, caked in their abstract colours with their distorted limbs and golden tears surrounded the unusual two. Camera’s glumly obeyed the red sign to the left of Clara. 
 
 KEINE BLITZLICHT- FOTOAUFNAHMEN, bitte
+
 LES FLASHS NE SONT AS AUTORISÉS, s’il vous plait.
+
 NO FLASH PHOTOGRAPHY, please. 
 
 
