@@ -1,1 +1,4 @@
-Title: Changing My Mind 
+--- 
+layout: post 
+title: Changing My Mind 
+---
