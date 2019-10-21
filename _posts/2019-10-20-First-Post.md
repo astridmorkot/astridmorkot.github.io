@@ -2,6 +2,6 @@
 layout: post
 title: Welcome !
 ---
-![group photo](/images/C027947-R1-16-18.jpg)
+![group photo](/images/C027484-R1-03-5.jpg)
 
 
