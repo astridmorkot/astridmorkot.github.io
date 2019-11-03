@@ -8,6 +8,7 @@ title: Mother
 Bad Seed 
 
 
+
 Red plant-pots on kitchen shelves, 
 
 evenly spaced, a perfect crimson space 
@@ -30,14 +31,16 @@ Daylight cripples and her plants curl up beside her,
 bodies twisting into each other, one flesh.
 
 My voice cries out for her, *Mother Make Me A Big Tall Tree!*
+
 But she is transfixed, by the sun and the moon with their halcyon rays
 
 and promises of changed life. 
 
 Eden’s strange daughter, I her bad seed. 
----
+
 
 Feel Free
+
 
 
 I entered this world as a screeching red comet, 
@@ -68,7 +71,6 @@ growing violently, threatening to undo me.
 But, I finally understand that we wax and wane on the same plane.
 
 It is only now I have realised that the world is standing still.
----
 
 
 
