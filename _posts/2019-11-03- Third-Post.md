@@ -6,7 +6,7 @@ title: Mother
 ---
 
 Bad Seed 
-
+---
 
 
 Red plant-pots on kitchen shelves, 
@@ -38,9 +38,10 @@ and promises of changed life.
 
 Eden’s strange daughter, I her bad seed. 
 
+---
 
 Feel Free
-
+---
 
 
 I entered this world as a screeching red comet, 
